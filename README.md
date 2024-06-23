@@ -1,3 +1,1 @@
-
-![App Screenshot](https://i.pinimg.com/564x/38/e8/05/38e805a2c2e3f15e2e9e2e52f38dbbb4.jpg)
-
+![App Screenshot](https://i.pinimg.com/564x/ed/a4/52/eda45229045833e8a6baef13bbb4e3d8.jpg)
